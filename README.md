@@ -1,36 +1,13 @@
 ### Hi there 👋
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
-### I Like Rainbow
+* I Like Rainbow 🌈🌈🌈🌈🌈🌈
+* I Like Rainbow 🌈🌈🌈🌈🌈🌈
+* I Like Rainbow 🌈🌈🌈🌈🌈🌈
+* I Like Rainbow 🌈🌈🌈🌈🌈🌈
+* I Like Rainbow 🌈🌈🌈🌈🌈🌈
+* I Like Rainbow 🌈🌈🌈🌈🌈🌈
+* I Like Rainbow 🌈🌈🌈🌈🌈🌈
+* I Like Rainbow 🌈🌈🌈🌈🌈🌈
+
 
 <!--
 **github-rainbow/github-rainbow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
